@@ -9,4 +9,9 @@ Instagram: michael.mogi.03<br/>
 Twitch: yuukiog<br/><br/><br/><br/>
 
 
-Brag Sheet:
+Brag Sheet: <br/>
+- Honor Roll (Gold and Silver) all 4 years of High School <br/>
+- Travel Soccer Labor Day Tournament 2nd Place Award & MVP Award <br/>
+- AP Scholar with Honor <br/>
+- NJ Science League (Physics) Participant <br/>
+- EB Science Honor Society VP Of Communications 2020-2021
